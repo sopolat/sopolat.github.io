@@ -1,1 +1,0 @@
-# sopolat.github.io
